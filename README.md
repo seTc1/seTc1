@@ -1,2 +1,2 @@
 
-![seTc1's GitHub stats](https://github-readme-stats.vercel.app/api?username=seTc1&theme=dark&show_icons=true)
+![GAMBA](https://media1.tenor.com/m/4OYd5OlYR9wAAAAd/gamba-xqc.gif)
